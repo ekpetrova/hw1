@@ -1,3 +1,5 @@
+https://docs.google.com/forms/d/1KAYgkwUmv-i5embU-me73TrQBCe9OripBC2ukZ2BnhY/edit?usp=sharing
+
 # hw1
 Петрова Катерина, 18 лет, г. Тверь, учусь в московском филиале НИУ ВШЭ на образовательной программе История Искусств.
  Мне нравятся немецкие писатели и мексиканское искусство. Почта: <ekpetrova@edu.hse.ru>.
